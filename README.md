@@ -3,4 +3,4 @@
 
 Dicord: https://discord.gg/GsQBeTtr8E
 
-DMCA: 
+DMCA: https://www.dmca.com/r/59r62jy
